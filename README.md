@@ -3,7 +3,7 @@
 ![image](safetyWarning-thumbnail.png)
 ![image2](safetyWarning-img.png)
 
-# Videos and project details please the project page check [HERE](https://bingcomputing.hotglue.me/?safetyWarning)
+Videos and project details please check the [project page HERE](https://bingcomputing.hotglue.me/?safetyWarning)
 
 -
 
